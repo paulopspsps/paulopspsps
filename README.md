@@ -1,0 +1,4 @@
+- 👋 Hello, my nome é @paulopspsps.
+- 👀 meu é email é "nãotenhoemail.gmail.com.br".
+- 🌱 Não estou interasso em literalmente nada que não for um emprego no momento (sério me ajuda aekk).
+- 💞️ Eu não sei progamar, mas busco procurar aprender com o alura (copiando é claro).
